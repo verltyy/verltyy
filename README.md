@@ -1,3 +1,3 @@
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=100&color=FFE10B&center=true&vCenter=true&width=900&lines=%22Hellooo%27!+I'm+Verity+!%3F%22;%22Its+just+us+again+.%21%22" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7DC00&width=435&lines=Hello!+I'm+Verity!;It's+just+again.;You're+mine." alt="Typing SVG" /></a>
 </p>
