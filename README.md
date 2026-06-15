@@ -3,5 +3,6 @@
   </div>
 
 <div align="center">
-WIP!!!!! I DONT HAVE ANY VERITY THEMED SOCIALS YET!!!
+[sign ata](https://verityy.atabook.org/)
 </div>
+
