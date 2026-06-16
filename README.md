@@ -6,6 +6,6 @@
 
   [sign ata](https://verityy.atabook.org/)
 
-Interact with NO care. I couldn't care less what you say about me or to me, as long as it's not like "you're not [kin\]"
+Interact with NO care :trollface: I couldn't care less what you say about me or to me, as long as it's not like "you're not [kin\]"
 </div>
 
