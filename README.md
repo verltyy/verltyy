@@ -10,6 +10,8 @@ Interact with NO care :trollface: I couldn't care less what you say about me or 
 
 </div>
 
+
+
 <div align="center">
 
 <img src="https://file.garden/afOzvZALWB7P0ssM/Screenshot%202026-06-18%20195924.png" />
@@ -17,3 +19,5 @@ Interact with NO care :trollface: I couldn't care less what you say about me or 
 just so you know trying to "join" (shown in image above) my verity skin kind of makes me upset, if i know you i will let you, but if i dont know you please back off. its not because i have tt or anything no its bc its u dont even really know how the skin works. i hope you understand. <3
 
 
+<img src="https://file.garden/afOzvZALWB7P0ssM/whathteurseng.gif" />
+ty for understanding <3
