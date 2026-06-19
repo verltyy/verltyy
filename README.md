@@ -8,10 +8,12 @@
 
 Interact with NO care :trollface: I couldn't care less what you say about me or to me, as long as it's not like "you're not [kin\]"
 
-<img width="140" height="114" alt="image" src="https://github.com/user-attachments/assets/80472ba4-2d44-4a02-a562-6e8cedd853ec" />
+</div>
+
+<div align="center">
+
+<img src="https://file.garden/afOzvZALWB7P0ssM/Screenshot%202026-06-18%20195924.png" />
+
 just so you know trying to "join" (shown in image above) my verity skin kind of makes me upset, if i know you i will let you, but if i dont know you please back off, i hope you understand. <3
 
-<img width="140 height="140" alt="img" src="https://file.garden/afOzvZALWB7P0ssM/heartmeoji.png" />
-
-</div>
 
